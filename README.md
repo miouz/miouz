@@ -30,7 +30,7 @@ Always exploring new technologies and building projects that challenge me.
 - 💡 Curious about **low-level programming & OS design**  
 - 🛠 Love building things from scratch and optimizing them  
 - 🌱 Currently learning **[Cybersecurity / AI / DevOps …]**  
-- 🤝 Open to collaborations on open-source projects  
+- 🤝 Open to all opportunities of collaboration🥰  
 
 ---
 
